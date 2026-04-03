@@ -1,1 +1,1 @@
-# PROYECTO-Sigma
+# PROYECTO-SIGMA
